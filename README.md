@@ -6,6 +6,9 @@ Masters Student in Computational and Data Science @ IISc, Bangalore
 - I did multiple projects involving Machine learning, Deep learning, Natural language processing 
 - How to reach me - parimalgajbhiye@gmail.com  
 
+Connect with me : [Linkedin](https://www.linkedin.com/in/parimal-gajbhiye-942234183/) 
+
+    
 
 
 
